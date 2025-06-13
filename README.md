@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **dharshanmohan2704@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/19FQZ6tYWNAWQONbBFwj6JlmmeSe-2s4a/view?usp=drivesdk](https://drive.google.com/file/d/19FQZ6tYWNAWQONbBFwj6JlmmeSe-2s4a/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/19FQZ6tYWNAWQONbBFwj6JlmmeSe-2s4a/view?usp=drivesdk](https://drive.google.com/file/d/1eg1Ek8PybzPJEBLqgZTMJLSNALzl_M-p/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
